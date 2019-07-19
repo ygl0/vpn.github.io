@@ -9,6 +9,6 @@
 
 [expressVPN](https://is.gd/yu30UW)，2009年成立，使用效果最优，30天内无条件退款
 
-[golden frog vyprVPN](https://is.gd/abc0gf)，2010年成立，拥有自己的服务器，综合性价比最优惠，三天免费试用
+[golden frog vyprVPN](https://is.gd/mabiju)，2010年成立，拥有自己的服务器，综合性价比最优惠
 
 [nordVPN](https://is.gd/httcnd)，2012年成立，可同时连接最多6个设备，长周期购买，价格最经济，30天内退款保证
